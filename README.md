@@ -1,5 +1,5 @@
 # Fernando Francisco Azevedo: Digital Architect & Innovation Strategist
- 
+
 ## At the Crossroads of Technology & Innovation
 
 🚀 **Hello World!** I’m Fernando, a pioneering digital architect and innovation strategist, firmly rooted at the vibrant intersection of technology and creativity. My extensive 16-year journey through the tech landscape has endowed me with a rich repertoire of skills and insights, setting me up to master the challenges of the future.
